@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @EdoLumi
+- 👀 I’m interested in Space exploration, Astrodynamics, Politics and Sport
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 
